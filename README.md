@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SatyaFadhilah
 - 👀 I’m interested in Informatika 
-- 🌱 I’m currently sedang belajar STT NURUL FIKRI 
+- 🌱 I’m currently learning STT NURUL FIKRI 
 - 💞️ I’m looking to collaborate on Nasa
 - 📫 How to reach me satyafadhilahhamdy123@gmail.com 
 - 😄 Kata ganti: 
